@@ -1,4 +1,4 @@
-![hxxnivers_image](https://github.com/user-attachments/assets/1db1ab07-a11f-4681-8b3b-00dd4f72d686)# 🌟 후니버스 (hxxnivers)
+# 🌟 후니버스 (hxxnivers)
 
 ## 🎮 마인크래프트의 새로운 지평을 여는 크리에이티브 그룹
 
